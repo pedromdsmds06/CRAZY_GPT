@@ -1,0 +1,2 @@
+# CRAZY_GPT
+CRAZY IS ON!
